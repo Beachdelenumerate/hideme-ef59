@@ -1,4 +1,4 @@
-
+Enhance your Hide.me experience with Hide.me advanced Client: obfuscation & multi-device-support, the #1 client. Includes obfuscation and multi-device-support for a safer and more
 
 
 
